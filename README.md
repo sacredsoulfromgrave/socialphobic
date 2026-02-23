@@ -5,11 +5,11 @@
 <h1 align="center">ᑎO ᗪᑎI + I ᗷᒪOᑕK ᖴᖇEEᒪY</h1>
 
 <p align="center">
-  𝙺𝚘𝚛𝚋𝚒𝚗 ｏｒ 𝙲𝚛𝚘𝚠
+  𝙺𝚘𝚛𝚋𝚒𝚗 ｏｒ Sαιɳƚ
 </p>
 
 <p align="center">
-  ₕₑ ｏｒ ᴀɴʏ ᴘʀɴꜱ
+  ₕₑ + ꀤ꓄ ｏｒ ᴀɴʏ ᴘʀɴꜱ
 </p>
 
 <p align="center">
